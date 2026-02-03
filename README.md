@@ -7,6 +7,7 @@
 🔗 [LinkedIn](https://www.linkedin.com/in/muhammad-ahmad-b9214b271)
 
 ---
+![Screenshot 2026-02-03 at 4 37 44 PM](https://github.com/user-attachments/assets/9ebc912d-3fc3-4a42-831d-e4044a2ae252)
 
 
 # 💫 About Me:
